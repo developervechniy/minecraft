@@ -1,2 +1,2 @@
 # minecraft
-lowkey the chillest minecraft server ever
+lowkey the chillest minecraft server ever. no joke
